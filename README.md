@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @RavingRabbidsKing (yes i copyed it from my other acc github pls dont mark me as spam again)
 - 👀 I’m interested in making minecraft mods and chrome extensions
 - 🌱 I’m currently learning HTML
-- 💞️ I’m looking to collaborate on cocrea projects
+- 💞️ I’m looking to collaborate on any scratch projects
 - 📫 How to reach me is at olker1936 (or asti4831) at gmail dot com (dont worry i kept it that way so no bots raid my email)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: my favorite colors are: Dark Green, Red, and Blue!
