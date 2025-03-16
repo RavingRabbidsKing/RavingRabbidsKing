@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @RavingRabbidsKing (yes i copyed it from my other acc github pls dont mark me as spam again)
+https://github.com/user-attachments/assets/77c3b6d8-a4db-4a6a-b9db-856c41472ac1
+
+ 👋 Hi, I’m @RavingRabbidsKing (yes i copyed it from my other acc github pls dont mark me as spam again)
 - 👀 I’m interested in making minecraft mods and chrome extensions
 - 🌱 I’m currently learning HTML
 - 💞️ I’m looking to collaborate on any scratch projects
